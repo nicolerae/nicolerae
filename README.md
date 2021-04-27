@@ -7,7 +7,7 @@
 - 🎮 I'm an avid gamer
 - 🪴 I'm a lover of plants
 
-### Let's Connect!
+### Let's Connect!📲
 - 💬 Ask me about Career Coaching -- I'm always looking to expand my network - <a href="https://www.linkedin.com/in/nicoleraedrummond">LinkedIn</a>
 - 📩 hello@nicoleraedrummond.com
 
