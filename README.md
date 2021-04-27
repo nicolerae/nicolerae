@@ -5,10 +5,10 @@
 - 💼 My career started in Human Resources
 - 👩🏻‍🦰 Pronouns: she/her
 - 🎮 I'm an avid gamer
-- 📩 hello@nicoleraedrummond.com
 
 ### Let's Connect!
 - 💬 Ask me about Career Coaching -- I'm always looking to expand my network - <a href="https://www.linkedin.com/in/nicoleraedrummond">LinkedIn</a>
+- 📩 hello@nicoleraedrummond.com
 
 ### 
 
