@@ -2,7 +2,7 @@
 
 - 💻 I’m currently learning Python
 - 🤝 I'm a Career Coach
-- 💼 My career started in Human Resources
+- 💼 Started my career in Human Resources
 - 👩🏻‍🦰 Pronouns: she/her
 - 🎮 I'm an avid gamer
 
