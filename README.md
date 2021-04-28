@@ -4,7 +4,7 @@
 - 🤝 I'm a Career Coach
 - 💼 Started my career in Human Resources
 - 👩🏻‍🦰 Pronouns: she/her
-- 🎮 I'm an avid gamer
+- 🎮 I'm a gamer - currently playing Fallout76 + Star Wars Battlefront II
 - 🪴 I'm a lover of plants
 
 ### Let's Connect!📲
