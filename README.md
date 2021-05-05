@@ -6,6 +6,8 @@
 - 👩🏻‍🦰 Pronouns: she/her
 - 🎮 I'm a gamer - currently playing Fallout76 + Star Wars Battlefront II
 - 🪴 I'm a lover of plants
+- 🖤 Black Lives Matter
+- ☮️ Stop Asian Hate
 
 ### Let's Connect!📲
 - 💬 Ask me about Career Coaching -- I'm always looking to expand my network - <a href="https://www.linkedin.com/in/nicoleraedrummond">LinkedIn</a>
