@@ -5,7 +5,8 @@
 - 💼 Started my career in Human Resources
 - 👩🏻‍🦰 Pronouns: she/her
 - 🎮 I'm a gamer - currently playing Mass Effect, Fallout76 + Star Wars Battlefront II
-- 🪴 I'm a lover of plants
+- 🪴 Plant lover
+- ✈️ Love to travel the world
 - 🖤 Black Lives Matter
 - ☮️ Stop Asian Hate
 
