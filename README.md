@@ -9,6 +9,7 @@
 - ✈️ Love to travel the world
 - 🖤 Black Lives Matter
 - ☮️ Stop Asian Hate
+- 🏳️‍🌈 LGBTQIA2S+ Ally
 
 ### Let's Connect!📲
 - 💬 Ask me about Career Coaching -- I'm always looking to expand my network - <a href="https://www.linkedin.com/in/nicoleraedrummond">LinkedIn</a>
