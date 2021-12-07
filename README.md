@@ -4,7 +4,7 @@
 - 🤝 I'm a Career Coach
 - 💼 Started my career in Human Resources
 - 👩🏻‍🦰 Pronouns: she/her
-- 🎮 I'm a gamer - currently playing Mass Effect, Fallout76 + It Take Two
+- 🎮 I'm a gamer - currently re-playing and streaming on Twitch: Fallout4!
 - 🪴 Plant lover
 - ✈️ Love to travel the world
 - 🖤 Black Lives Matter
