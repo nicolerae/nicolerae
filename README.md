@@ -1,18 +1,20 @@
 ### Hiya!👋 I'm Nicole Rae
 
-- 💻 I’m currently learning Python
+- 💻 I’m currently learning Python and Agile Coaching
 - 🤝 I'm a Career Coach
-- 💼 Started my career in Human Resources
+- 👥 Love connecting people - please reach out!
+- 💼 Started my career in Human Resources and Recruiting
 - 👩🏻‍🦰 Pronouns: she/her
-- 🎮 I'm a gamer - currently re-playing and streaming on Twitch: Fallout4!
+- 🎮 I'm a gamer - currently re-playing and streaming on Twitch: Fallout4! 
 - 🪴 Plant lover
+- 🪡 Learning to sew clothing
 - ✈️ Love to travel the world
 - 🖤 Black Lives Matter
 - ☮️ Stop Asian Hate
 - 🏳️‍🌈 LGBTQIA2S+ Ally
 
 ### Let's Connect!📲
-- 💬 Ask me about Career Coaching -- I'm always looking to expand my network - <a href="https://www.linkedin.com/in/nicoleraedrummond">LinkedIn</a>
+- 💬 Ask me about Career Coaching/Job Searching/Anything -- I'm always looking to expand my network - <a href="https://www.linkedin.com/in/nicoleraedrummond">LinkedIn</a>
 - 📩 hello@nicoleraedrummond.com
 
 ### 
