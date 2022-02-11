@@ -2,7 +2,7 @@
 
 - 💻 I’m currently learning Python and Agile Coaching
 - 🤝 I'm a Career Coach
-- 👥 Love connecting people - please reach out!
+- 👥 Love connecting with people - please reach out!
 - 💼 Started my career in Human Resources and Recruiting
 - 👩🏻‍🦰 Pronouns: she/her
 - 🎮 I'm a gamer - currently re-playing and streaming on Twitch: Fallout4! 
