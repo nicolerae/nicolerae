@@ -1,9 +1,9 @@
 ### Hiya!👋 I'm Nicole Rae
 
-- 💻 I’m currently learning Python and Agile Coaching
-- 🤝 I'm a Career Coach
+- 💻 I’m currently learning Python and Agile Coaching - getting my Scrum Master Certification
+- 🤝 I'm a Career Coach and Human Resources Professional
 - 👥 Love connecting with people - please reach out!
-- 💼 Started my career in Human Resources and Recruiting
+- 💼 Started my career in Human Resources, Learning + Development, and Full-Cycle Recruiting
 - 👩🏻‍🦰 Pronouns: she/her
 - 🎮 I'm a gamer - currently re-playing and streaming on Twitch: Fallout4! 
 - 🪴 Plant lover
