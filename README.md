@@ -16,6 +16,7 @@
 ### Let's Connect!📲
 - 💬 Ask me about Career Coaching/Job Searching/Anything -- I'm always looking to expand my network - <a href="https://www.linkedin.com/in/nicoleraedrummond">LinkedIn</a>
 - 📩 hello@nicoleraedrummond.com
+- 🧑‍💻 <a href="https://www.linkedin.com/in/nicoleraedrummond"> Visit my site </a>
 
 ### 
 
