@@ -8,6 +8,7 @@
 - 🎮 I'm a gamer - currently re-playing and streaming on Twitch: Fallout4! 
 - 🪴 Plant lover
 - 🪡 Learning to sew clothing
+- ⚡ Fun fact: I met my partner on Instagram in 2012
 - ✈️ Love to travel the world
 - 🖤 Black Lives Matter
 - ☮️ Stop Asian Hate
