@@ -1,10 +1,10 @@
 ### Hiya!👋 I'm Nicole Rae
 
-- 💻 I’m currently learning to code and focused on Agile Coaching, getting my coaching certification
-- 🤝 I'm a Career Coach and Human Resources Professional
+- 💻 I’m currently learning to code and focused on attaining my ICF Coaching Accreditation
+- 🤝 I'm a Career Coach and a Coaching Recruiter at Bravely
 - 👥 Love connecting with people - please reach out!
 - 💼 Started my career in Human Resources, Learning + Development, and Full-Cycle Recruiting
-- 👩🏻‍🦰 Pronouns: she/her
+- 👩🏻‍🦰 Pronouns: she/her/theirs
 - 🎮 I'm a gamer - currently re-playing and streaming on Twitch: Fallout4! 
 - 🪴 Plant lover
 - 🪡 Learning to sew clothing
