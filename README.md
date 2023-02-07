@@ -1,17 +1,15 @@
 ### Hiya!👋 I'm Nicole Rae
 
-- 💻 I’m currently learning to code and focused on attaining my ICF Coaching Accreditation
 - 🤝 I'm a Career Coach and a Coaching Recruiter at Bravely
 - 👥 Love connecting with people - please reach out!
-- 💼 Started my career in Human Resources, Learning + Development, and Full-Cycle Recruiting
+- 💼 My career focus is in Talent Development, Learning + Development, HR, and Full-Cycle Recruiting
 - 👩🏻‍🦰 Pronouns: she/her/theirs
-- 🎮 I'm a gamer - currently re-playing and streaming on Twitch: Fallout4! 
+- 🎮 I'm a gamer - PS5
 - 🪴 Plant lover
-- 🪡 Learning to sew clothing
+- 🪡 Learning to sew clothing - have made my own pants, 5 shirts, and a pair of jeans!👖
 - ⚡ Fun fact: I met my partner on Instagram in 2012
 - ✈️ Love to travel the world
-- 🖤 Black Lives Matter
-- ☮️ Stop Asian Hate
+- 🖤 Anti-Racist☮️
 - 🏳️‍🌈 LGBTQIA2S+ Ally
 
 ### Let's Connect!📲
@@ -24,6 +22,7 @@
 <!--
 **nicolerae/nicolerae** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 - 🔭 I’m currently working on ...
+- 💻 I’m currently looking to 
 - 🌱 I’m currently learning Python
 - 💬 Ask me about Career Coaching
 - 📫 How to reach me: hello@nicoleraedrummond.com
