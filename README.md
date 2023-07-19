@@ -1,8 +1,8 @@
 ### Hiya!👋 I'm Nicole Rae
 
-- 🤝 I'm a Career Coach and a Coaching Recruiter at Bravely
-- 👥 Love connecting with people - please reach out!
-- 💼 My career focus is in Talent Development, Learning + Development, HR, and Full-Cycle Recruiting
+- 🤝 I'm a Human Resources Business Partner w/focus on Employee Relations
+- 👥 Enjoy connecting with people - please reach out!
+- 💼 My career focus is in Performance Management, HR process streamlining, compassionatley leading employee relations, and HR analytics
 - 👩🏻‍🦰 Pronouns: she/her/theirs
 - 🎮 I'm a gamer - PS5
 - 🪴 Plant lover
@@ -13,7 +13,7 @@
 - 🏳️‍🌈 LGBTQIA2S+ Ally
 
 ### Let's Connect!📲
-- 💬 Ask me about Career Coaching/Job Searching/Anything -- I'm always looking to expand my network - <a href="https://www.linkedin.com/in/nicoleraedrummond">LinkedIn</a>
+- 💬 Ask me about Human Resources -- I'm always looking to expand my network - <a href="https://www.linkedin.com/in/nicoleraedrummond">LinkedIn</a>
 - 📩 hello@nicoleraedrummond.com
 - 🧑‍💻 <a href="https://www.linkedin.com/in/nicoleraedrummond"> Visit my site </a>
 
