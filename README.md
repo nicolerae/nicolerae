@@ -5,7 +5,7 @@
 - 👩🏻‍🦰 Pronouns: she/they
 - 🎮 I'm a gamer - PS5
 - 🪴 Plant lover
-- 🪡 Learning to sew clothing - have made my own pants, 5 shirts, and a pair of jeans!👖
+- 🪡 Learning to sew my own clothing - love to make crafts with my toddler
 - ✈️ Love to travel the world with my husband, we met on Instagram in 2012
 - 🖤 Anti-Racist☮️
 - 🏳️‍🌈 LGBTQIA2S+ Ally
