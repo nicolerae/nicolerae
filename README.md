@@ -1,21 +1,14 @@
 ### Hiya!👋 I'm Nicole Rae
 
-- 🤝 I'm a Human Resources Business Partner w/focus on Employee Relations
-- 👥 Enjoy connecting with people - please reach out!
+- 🤝 I'm a Human Resources Business Partner at work, and a wife and mom at home👨‍👩‍👧
 - 💼 My career focus is in Performance Management, HR process streamlining, compassionatley leading employee relations, and HR analytics
-- 👩🏻‍🦰 Pronouns: she/her/theirs
+- 👩🏻‍🦰 Pronouns: she/they
 - 🎮 I'm a gamer - PS5
 - 🪴 Plant lover
 - 🪡 Learning to sew clothing - have made my own pants, 5 shirts, and a pair of jeans!👖
-- ⚡ Fun fact: I met my partner on Instagram in 2012
-- ✈️ Love to travel the world
+- ✈️ Love to travel the world with my husband, we met on Instagram in 2012
 - 🖤 Anti-Racist☮️
 - 🏳️‍🌈 LGBTQIA2S+ Ally
-
-### Let's Connect!📲
-- 💬 Ask me about Human Resources -- I'm always looking to expand my network - <a href="https://www.linkedin.com/in/nicoleraedrummond">LinkedIn</a>
-- 📩 hello@nicoleraedrummond.com
-- 🧑‍💻 <a href="https://www.linkedin.com/in/nicoleraedrummond"> Visit my site </a>
 
 ### 
 
