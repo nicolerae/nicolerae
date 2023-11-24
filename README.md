@@ -1,11 +1,11 @@
 ### Hiya!👋 I'm Nicole Rae
 
-- 🤝 I'm a Human Resources Business Partner at work, and a wife and mom at home👨‍👩‍👧
+- 🤝 I'm a Human Resources Business Partner, a wife and a mom👨‍👩‍👧
 - 💼 My career focus is in Performance Management, HR process streamlining, compassionatley leading employee relations, and HR analytics
 - 👩🏻‍🦰 Pronouns: she/they
-- 🎮 I'm a gamer - PS5
+- 🎮 I'm a gamer - PS5 / XBOX 
 - 🪴 Plant lover
-- 🪡 Learning to sew my own clothing - love to make crafts with my toddler🎨🖌️
+- 🪡 Learning to sew my own clothing + love to make crafts with my toddler🎨🖌️
 - ✈️ Love to travel the world with my husband, we met on Instagram in 2012
 - 🖤 Anti-Racist☮️
 - 🏳️‍🌈 LGBTQIA2S+ Ally
