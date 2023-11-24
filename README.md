@@ -1,7 +1,7 @@
 ### Hiya!👋 I'm Nicole Rae
 
 - 🤝 I'm a Human Resources Business Partner, a wife and a mom👨‍👩‍👧
-- 💼 My career focus is in Performance Management, HR process streamlining, compassionatley leading employee relations, and HR analytics
+- 💼 My career focus is in leadership coaching, performance management as a true HR partner, HR process streamlining, compassionatley leading employee relations, and HR analytics
 - 👩🏻‍🦰 Pronouns: she/they
 - 🎮 I'm a gamer - PS5 / XBOX 
 - 🪴 Plant lover
