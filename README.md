@@ -1,11 +1,11 @@
-### Hiya!👋 I'm Nicole Rae
+### Hiya!👋 I'm Nicole Rae Drummond
 
 - 🤝 I'm a Human Resources Business Partner, a wife and a mom👨‍👩‍👧
-- 💼 My career focus is in leadership coaching, performance management as a true HR partner, HR process streamlining, compassionatley leading employee relations, and HR analytics
+- 💼 With a career focused on leadership coaching, performance management, HR process streamlining, compassionate employee relations leadership, and       HR analytics, I bring extensive expertise to support the dynamic growth of organizations through change management and strategic workforce             planning.
 - 👩🏻‍🦰 Pronouns: she/they
-- 🎮 I'm a gamer - PS5 / XBOX 
+- 🎮 I'm a gamer - PS5 / XBOX and I stream on Twitch! 
 - 🪴 Plant lover
-- 🪡 Learning to sew my own clothing + love to make crafts with my toddler🎨🖌️
+- 🪡 Learning to sew my own clothing + love to make crafts with my child🎨🖌️
 - ✈️ Love to travel the world with my husband, we met on Instagram in 2012
 - 🖤 Anti-Racist☮️
 - 🏳️‍🌈 LGBTQIA2S+ Ally
